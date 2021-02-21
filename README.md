@@ -1,1 +1,1 @@
-# lab-2-
+# Laboratorka2-
